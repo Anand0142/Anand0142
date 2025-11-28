@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **kammarianand20@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1QmYbmppJJh5MYp07n5Lrf9pFxI_xMyoF](https://drive.google.com/file/d/1QmYbmppJJh5MYp07n5Lrf9pFxI_xMyoF)
+- 📄 Know about my experiences https://drive.google.com/file/d/1KKjodB8Ne1idymMj_AfbaFgPIItwP4sL/view?usp=drive_link
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
